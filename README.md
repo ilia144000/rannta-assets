@@ -1,0 +1,1 @@
+# rannta-assets
